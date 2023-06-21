@@ -33,6 +33,6 @@ We reserve the right to update or modify this Privacy Policy at any time. Any ch
 Contact Us
 If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at mosheadahanapp@gmail.com.
 
-Please note that this Privacy Policy is effective as of [Effective Date] and supersedes any prior versions.
+Please note that this Privacy Policy is effective as of June 2023 and supersedes any prior versions.
 
 By using the ME365 App, you acknowledge that you have read, understood, and agreed to this Privacy Policy.
